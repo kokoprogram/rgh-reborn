@@ -1,4 +1,4 @@
-# /r/Piracy Megathread Archive **OUTDATED**
+# RGH Reborn
 
 ![Header](https://raw.githubusercontent.com/magicoflolis/Reddit-Piracy-Megathread/master/data/redditprivacy.png)
 
